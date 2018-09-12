@@ -24,3 +24,10 @@ Silent and still
 Blue lake and rocky shore
 I will return once more
 Boom-diddy-ah-da, Boom-diddy-ah-da, Boom-diddy-ah-da, bo-oo-oom
+
+My heart grows sick for thee
+Here in the lowlands
+I will return to thee hills of the north
+Blue lake and rocky shore
+I will return once more
+Boom-diddy-ah-da, Boom-diddy-ah-da, Boom-diddy-ah-da, bo-oo-oom
