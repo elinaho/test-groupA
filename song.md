@@ -16,3 +16,11 @@ Wanders at will
 Blue lake and rocky shore
 I will return once more
 Boom-diddy-ah-da, Boom-diddy-ah-da, Boom-diddy-ah-da, bo-oo-oom
+
+High on a rocky ledge
+I¹ll build my wigwam
+Close to the water¹s edge
+Silent and still
+Blue lake and rocky shore
+I will return once more
+Boom-diddy-ah-da, Boom-diddy-ah-da, Boom-diddy-ah-da, bo-oo-oom
