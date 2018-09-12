@@ -31,3 +31,12 @@ I will return to thee hills of the north
 Blue lake and rocky shore
 I will return once more
 Boom-diddy-ah-da, Boom-diddy-ah-da, Boom-diddy-ah-da, bo-oo-oom
+
+Land of the silver birch
+Home of the beaver
+Where still the mighty moose
+Wanders at will
+Blue lake and rocky shore
+I will return once more
+Boom-diddy-ah-da, Boom-diddy-ah-da, Boom-diddy-ah-da, bo-oo-oom
+
